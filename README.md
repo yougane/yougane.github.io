@@ -1,1 +1,0 @@
-# yougane.github.io
